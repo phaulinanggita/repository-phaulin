@@ -1,0 +1,1 @@
+dapapa gapunya ayang yang penting punya uang
